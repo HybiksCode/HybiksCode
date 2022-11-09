@@ -1,3 +1,3 @@
-![dawg](https://cdn.discordapp.com/attachments/850160961863942174/980219302764482620/2022_background.png)
+![dawg](https://media.discordapp.net/attachments/850160961863942174/1039730284712693770/angel_lyric.png)
 
-### [Hybiks, or just Hy.](https://github.com/HybiksCode/Hybiks)
+### [AnxiiAniael... Ani](https://github.com/HybiksCode/Hybiks)
